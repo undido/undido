@@ -1,1 +1,1 @@
-If you are contacted by me it is likely not me. I am being impersonated.
+If you are contacted by me it is likely not me. I am being impersonated. I do not have a deviantart account.
